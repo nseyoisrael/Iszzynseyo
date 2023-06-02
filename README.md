@@ -1,2 +1,1 @@
-# Iszzynseyo
-Create a motivational quotes on Christ love on Facebook 
+# Iszzynseyo motivational quotes on Christ love on Facebook
